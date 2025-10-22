@@ -1,0 +1,15 @@
+rt
+b
+bx
+vv
+bv
+bv
+b
+vb
+vb
+v
+bv
+bg
+g
+fg
+bhgf
