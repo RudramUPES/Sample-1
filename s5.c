@@ -1,0 +1,13 @@
+t
+hg
+hn
+n
+b
+bn
+bn
+b
+nb
+n
+bn
+bn
+b
